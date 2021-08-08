@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @deyyshawn
+- 👀 I’m interested in all whatnot
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on everything
+- 📫 How to reach me : wxlf#2179
